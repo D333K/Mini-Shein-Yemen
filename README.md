@@ -1,0 +1,2 @@
+# Mini-Shein-Yemen
+Mini Shein Yemen is your trusted gateway to authentic Shein products in Yemen. We offer a seamless shopping experience, providing access to Shein's wide collection with fast delivery and reliable customer support. Shop with confidence and enjoy the latest fashion trends from the comfort of your home.
